@@ -1,0 +1,1 @@
+# WINDOWS-ta-S-ral-Klas-r-Olu-turma
